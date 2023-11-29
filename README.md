@@ -1,0 +1,1 @@
+# kumamoto-bestlocal-services
